@@ -1,2 +1,3 @@
 # Exploring the Stress Buffering Effects of Social Support and Purpose in Health
-### By Hannah Lammont, Adrien Fillon, Joshua Gills, Giada Benasi, and Hunter Lanovoi
+### A International Collaboration of Early Career Researchers
+### By Hannah Lammont, DC, Adrien Fillon, PhD, Joshua Gills, PhD, Giada Benasi, PhD, and Hunter Lanovoi
